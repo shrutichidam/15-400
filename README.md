@@ -18,3 +18,5 @@
 [March 19, 2020](https://docs.google.com/document/d/17PU1BvpQeM18xDoAlHm3VJNaqthvjRXlN14GHHPF_Vg/edit?usp=sharing) 
 
 [April 3, 2020](https://docs.google.com/document/d/18KxuSxoRWpdQqxL9EvNZfwskf1aPmgIMjgZW7KoGjUQ/edit?usp=sharing)
+
+[April 24, 2020](https://docs.google.com/document/d/1kCg5_0u6o-jm_qcHuu_JLSNHOLqgrw0F-T7F1OiiNYY/edit?usp=sharing) 
